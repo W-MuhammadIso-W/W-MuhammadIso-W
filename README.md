@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @W-MuhammadIso-W
+- 👀 I’m interested in learning programming languages and cybersports.
+- 🌱 I’m currently learning Python
+- 📫 otajonasatullayev2907@gmail.com | Telegram: w_user_w | Discord: awuqondi
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I like karaoke!!! :)
